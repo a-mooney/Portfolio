@@ -1,4 +1,4 @@
 ## Welcome to Abi's Portfolio Page
 
-I'm still in the process of developing this page, but can't wait to show off all that I can do. 
+I'm still in the process of developing this page, but eager to get my content up.  
 Thanks for stopping by!
